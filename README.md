@@ -60,7 +60,7 @@
 
 戒骄戒躁、聚焦聚焦聚焦，是我对自己的告诫。
 
-备注：Github，送AI+自媒体运营大礼包。
+加我备注：Github，送AI+自媒体运营大礼包。
 
 <img src="https://typora-xubang.oss-cn-hangzhou.aliyuncs.com/2024_xubang/4c74d3f23cfb9ff3a33170a3936f8b66.JPG?AI_make_money=VX_AI19858122061" alt="4c74d3f23cfb9ff3a33170a3936f8b66" style="zoom: 33%;" />
 
